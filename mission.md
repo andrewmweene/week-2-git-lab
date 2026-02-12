@@ -1,1 +1,1 @@
-Mission statement: Excellence is our mision.
+Our Mission is perservearance leads to success
